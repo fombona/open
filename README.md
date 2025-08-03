@@ -1,0 +1,2 @@
+- Traducción al Inglés: Creativity and innovation in universities. EEUU. Florida: Ed. Journal of Alternative Perspectives in The Social Sciences, pp.: 171-181. ISBN: 978-1-312-18816-7
+- Traducción al portugués: Criatividade e inovação no espaço universitário. (1ª edición 2014, pp.:214-226; 2ª edición 2018, pp.: 235-248, 3ª edición 2019). ISBN: 978-989-729-095-4. Porto, Portugal: Media XXI.
